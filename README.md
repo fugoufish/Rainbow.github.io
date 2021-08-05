@@ -1,0 +1,1 @@
+# fugoufish.github.io
